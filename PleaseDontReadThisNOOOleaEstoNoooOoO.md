@@ -1,0 +1,49 @@
+### Otros ###
+
+**CURRÍCULUM ONLINE IN ESPAÑOL**
+• CURRÍCULUM http://goo.gl/8gYSt
+
+
+**CURRÍCULUM ONLINE IN ENGLISH**
+• CURRÍCULUM http://goo.gl/6jUXB
+
+**TWITER**
+• TWITER jamesjarahttp://twitter.com/jamesjara
+
+**Portafolio (con imagenes/videos de cloud computing):**
+• Portafolio innosystem http://www.innosystem.co.cc
+
+**LINKEDIN**
+• LINKEDINjamesjara http://cr.linkedin.com/in/jamesjara
+
+**HACKING VIDEOS**
+• YOUTUBE Jamesjara http://www.youtube.com/user/jamesjosuejara#g/u
+
+
+**Repositorio con proyectos open source:**
+• RepositoriO code google http://code.google.com/hosting/search?q=label:JAMESJARA
+
+
+**X7Cloud Webservice Framework:**
+• X7Cloud http://x7cloud.blogspot.com/p/acerca.html
+
+
+**Computer Society:**
+• Computer Societyhttp://www.facebook.com/pages/Computer-Society-CR-/197646443579177
+
+
+**Computer Society GrouP**
+• Computer Society GrouP http://www.facebook.com/groups/214267468618834/
+
+
+**E-Card:**
+• Card http://about.me/jamesjara/
+
+
+**Blog(computacion):**
+• Blog http://3plej-life.blogspot.com
+
+
+**Más:**
+• JAMES PAGE FB http://www.facebook.com/pages/James-Jara-Web-Blog/125047730935251
+• james jarahttp://www.google.co.cr/search?q=james+jara
